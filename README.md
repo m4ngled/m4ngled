@@ -8,4 +8,4 @@ art by p4rtypaws on pinterest / angelicvanny on insta ! PLSS CHECK THEM OUT THEY
   
 ── .✦ | @soapchugger is the foxy 2 my mangle ( also the toy chica 2 my mangle occasionally ! ) <3  
 
-── .✦ | ok thats all 4 this account :3 check out my main 4 more info !
+── .✦ | thats all 4 this account :3 check out my main 4 more info !
