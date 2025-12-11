@@ -4,7 +4,7 @@ art by p4rtypaws on pinterest / angelicvanny on insta ! PLSS CHECK THEM OUT THEY
   
 ── .✦ | mangle is my biggest kin so pleasplease dni if u refer to urself as his #1 fan , OR just dont bring that up around me !  
   
-── .✦ | mangles been my favorite fnaf character ever since i got internet access in 2015 ! mangle will 4ever b me !!    
+── .✦ | mangles been my favorite fnaf character ever since i got internet access in 2015 ! i will 4ever b them !!    
   
 ── .✦ | @soapchugger is the foxy 2 my mangle ( also the toy chica 2 my mangle occasionally ! ) <3  
 
